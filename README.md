@@ -1,0 +1,1 @@
+Atcoder Beginner ContestとかのScore400↑の戦闘記録
